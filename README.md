@@ -90,11 +90,13 @@ Support with   so I can buy   and keep being  !
   -   Site: Coming soon — stay curious...
 
 ---
- # ❤️❤️❤❤️❤️ INITIATING HUMANITY MODE...❤️❤️❤❤️❤️
+ # ❤️❤❤️ INITIATING HUMANITY MODE for Down Syndrome ❤️❤❤️
 ---
 
   Target Locked: Anak-anak Pejuang Down Syndrome  
+ 
   Status: Butuh Dukungan  
+  
   Response: Buka Hati + Klik Link = Satu Senyum Baru
 
   Mereka bukan berbeda — mereka dilahirkan untuk mengajarkan dunia tentang cinta yang murni dan kesabaran yang luar biasa.
